@@ -1,1 +1,1 @@
-# WildBlossomStudio.github.io
+# Wild Blossom Studio
