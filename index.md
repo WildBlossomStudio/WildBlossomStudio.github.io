@@ -1,1 +1,1 @@
-Placeholder text
+New website coming soon!
